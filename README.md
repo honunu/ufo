@@ -13,6 +13,8 @@ For debunking UFO truth
 
 [美国防部曝光UFO视频！日本第一起UFO目击事件，虚舟是外星飞行器？](https://www.bilibili.com/video/BV1Fa4y1v7EH)
 
-国防部解密的UFO视频其中04年视频的飞行员在Joe Rogan晚间夜谈节目
+国防部解密的UFO视频其中04年视频的飞行员David Fravor在Joe Rogan晚间夜谈节目
 
 [Joe Rogan Experience #1361 - Cmdr. David Fravor & Jeremy Corbell //大卫·费沃尔&杰瑞·科贝尔](https://www.bilibili.com/video/BV1yK41157Vk)
+
+[中央情报局前雇员临终讲述51区与外星人,罗斯威尔事件](https://www.bilibili.com/video/BV1iJ411R74x)
