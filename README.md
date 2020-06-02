@@ -9,4 +9,9 @@ For debunking UFO truth
 
 [【真实事件】1979年道西战争【已更新P2】—外星人与人类的秘密战役](https://www.bilibili.com/video/av17337731)
 
+[Bob Lazar关于51区工作逆向工程反重力飞船的爆料](https://www.bilibili.com/video/BV1RW411b7a5)
+
 [美国防部曝光UFO视频！日本第一起UFO目击事件，虚舟是外星飞行器？](https://www.bilibili.com/video/BV1Fa4y1v7EH)
+
+国防部解密的UFO视频其中04年视频的飞行员在Joe Rogan晚间夜谈节目
+[Joe Rogan Experience #1361 - Cmdr. David Fravor & Jeremy Corbell //大卫·费沃尔&杰瑞·科贝尔] (https://www.bilibili.com/video/BV1yK41157Vk)
