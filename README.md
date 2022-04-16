@@ -1,11 +1,11 @@
-# ufo
+# UFO
 For debunking UFO truth
 这个项目旨在提供优质的UFO相关资源，发现宇宙的真相。
 
 ## B站
 [美国海军公开三段UFO视频说明了什么？ | 晓涵哥](https://www.bilibili.com/video/BV18J411379y)
 
-这个视频并不是完全讲Dulce War, 是Phil Schneider 在1995年分享会上的爆料，1996年被自杀
+这个视频是Phil Schneider 在1995年分享会上的爆料，1996年被自杀
 
 [【真实事件】1979年道西战争【已更新P2】—外星人与人类的秘密战役](https://www.bilibili.com/video/av17337731)
 
@@ -19,6 +19,10 @@ For debunking UFO truth
 
 [中央情报局前雇员临终讲述51区与外星人,罗斯威尔事件](https://www.bilibili.com/video/BV1iJ411R74x)
 
+## B站有关外星人频道
+[塔哥奇谈](https://space.bilibili.com/647063772)
+
+
 ### 纪录片
 
 [unacknowledged 【未曾确认】纪录片](http://pan.baidu.com/s/1c1UKxR6)
@@ -26,3 +30,10 @@ For debunking UFO truth
 [nacknowledged 【未曾确认】纪录片1080P 密码：nh6e](https://pan.baidu.com/s/1NtvhCOXCUFVG-FgTcghjHA)
 
 [2001年Steven Greer.UFO科技揭秘工程](https://www.bilibili.com/video/BV1DE411q7mr)
+
+[cosmic disclosure 【中英文字幕】/揭露宇宙 1-8集【清晰版本】](https://www.bilibili.com/video/BV1uW411G7fZ)
+
+[cosmic disclosure 【中英文字幕】/揭露宇宙 9-23集](https://www.bilibili.com/video/BV1cW411G796)
+[cosmic disclosure 【中英文字幕】/揭露宇宙 24-60集](https://www.bilibili.com/video/BV1gW411G7su)
+[cosmic disclosure 【中英文字幕】/揭露宇宙 61-100集](https://www.bilibili.com/video/BV1ms411n7nU)
+[cosmic disclosure 【中英文字幕】/揭露宇宙 101-120集](https://www.bilibili.com/video/BV1UW411r7Ad)
