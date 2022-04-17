@@ -23,23 +23,66 @@ For debunking UFO truth
 
 
 ### 老高与小茉
+
 [外星生物创造论](https://www.bilibili.com/video/BV1uU4y1d75B?p=12)
+
 [美国承认UFO](https://www.bilibili.com/video/BV1uU4y1d75B?p=45)
+
 [地球上的外星生物](https://www.bilibili.com/video/BV1uU4y1d75B?p=65)
+
 [地球监狱说](https://www.bilibili.com/video/BV1uU4y1d75B?p=114)
+
 [2045未来人](https://www.bilibili.com/video/BV1uU4y1d75B?p=123)
+
 [登月的秘密](https://www.bilibili.com/video/BV1uU4y1d75B?p=140)
+
 [通古斯大爆炸](https://www.bilibili.com/video/BV1uU4y1d75B?p=172)
+
 [外星人木乃伊](https://www.bilibili.com/video/BV1uU4y1d75B?p=174)
+
 [金字塔](https://www.bilibili.com/video/BV1uU4y1d75B?p=188)
+
 [亚特兰蒂斯](https://www.bilibili.com/video/BV1iM4y157yG)
+
 [火星](https://www.bilibili.com/video/BV1hM4y1T7bg/)
 
-## B站有关外星人频道
+### B站有关外星人频道
+
 [塔哥奇谈](https://space.bilibili.com/647063772)
 
 [YuannanLi420](https://space.bilibili.com/475747316)
 
+
+## CCTV新闻
+
+[洛马前工程师曝光外星人存在](https://www.bilibili.com/video/BV1tV411j7ou/)
+
+[央视报道外星人加拿大前国防部长保罗赫勒说外星人一直在保护地球人类。](https://www.bilibili.com/video/BV1CE41147PA)
+
+[18部央视对UFO的报道](https://www.bilibili.com/video/BV1yE411G7eF/)
+
+[萧山机场UFO事件调查，消失的影像资料！](https://www.bilibili.com/video/BV1T54y1L7pd)
+
+[【塔哥秘谈录】专访张靖平：谁说中国没有外星人？亲身调查UFO事件30年，国产最强X-MAN亲述](https://www.bilibili.com/video/BV1i64y1b74Y)
+
+[中国接触外星人第一人孟照国2021年告诉人类的真相](https://www.bilibili.com/video/BV1yf4y137eF/)
+
+
+## 采访
+
+[中央情报局前雇员临终讲述51区与外星人](https://www.bilibili.com/video/BV1iJ411R74x/)
+
+[加拿大前国防部长：有个金星人曾在美国五角大楼工作四年，并有不少提议（搬运）](https://www.bilibili.com/video/BV1kR4y1H7Mj/)
+
+## 国内事件
+
+[再探贵阳空中怪车，中国神秘UFO事件之一](https://www.bilibili.com/video/BV1Yi4y1P7h9)
+
+[94年贵阳空中怪车事件ufo](https://www.bilibili.com/video/BV1xK4y1D7kL)
+
+[怕引起社会恐慌封锁11年的大型UFO破坏事件 贵州空中怪车事件](https://www.bilibili.com/video/BV1UA4117775/)
+
+[98年昆明UFO事件(加强完整版)迄今最清晰版](https://www.bilibili.com/video/BV1cU4y187Ec)
 
 ### 纪录片
 
@@ -47,12 +90,7 @@ For debunking UFO truth
 
 [【纪录片|中英字幕】鲍勃·拉扎：51区和飞碟.Bob.Lazar.Area.51.and.Flying.Saucers（2018）](https://www.bilibili.com/video/BV1T4411g7gm)
 
-
-[]()
-[]()
-[]()
-
-
+[【纪录片】不被承认的存在 1080P中英文双语字幕 Unacknowledged](https://www.bilibili.com/video/BV1Gf4y18718)
 
 [unacknowledged 【未曾确认】纪录片](http://pan.baidu.com/s/1c1UKxR6)
 
