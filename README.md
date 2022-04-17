@@ -83,17 +83,6 @@ For debunking UFO truth
 
 - [加拿大前国防部长：有个金星人曾在美国五角大楼工作四年，并有不少提议（搬运）](https://www.bilibili.com/video/BV1kR4y1H7Mj/)
 
-## 国内事件
----
-- [再探贵阳空中怪车，中国神秘UFO事件之一](https://www.bilibili.com/video/BV1Yi4y1P7h9)
-
-- [94年贵阳空中怪车事件ufo](https://www.bilibili.com/video/BV1xK4y1D7kL)
-
-- [怕引起社会恐慌封锁11年的大型UFO破坏事件 贵州空中怪车事件](https://www.bilibili.com/video/BV1UA4117775/)
-
-- [98年昆明UFO事件(加强完整版)迄今最清晰版](https://www.bilibili.com/video/BV1cU4y187Ec)
-
-- [中国三大 UFO悬案 凤凰山 孟照国事件](https://www.bilibili.com/video/BV1av411N7FA/)
 
 ## 反向外星科技
 ---
